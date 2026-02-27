@@ -1,0 +1,74 @@
+# the GazettE – 体温 - Taion
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+A wintry sky and the
+broken streetlight cold wind.
+Unknown  shadow the footpoint of
+desertion.Freedom was taken.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+If it wakes up a gloomy ceiling.
+A loughing
+voice sinks in the eardrum
+it is soiled.And violence
+rapes me rapes me rapes me
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+Why was I chosen?
+Someone should answer...
+どうか酷い
+夢だと答えて欲しい
+どれだけ叫び
+悶え 苦しめばいい
+どうか酷い
+夢だと教えて欲しい
+千切れそうな
+声で何度も叫んだ
+〜♪〜
+There is no hand of preparing of
+disordred hair.
+A laughing  voice sinks in the
+eardrum
+a faint temperature is
+mixed in the midwinter.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+An understanding is impossible.
+声を殺して
+枯れそうな自分に
+言い聞かせていた
+生きる事を
+見失わぬよう
+声を殺して
+震えた夜は
+痛みに溺れていく
+途切れそうな
+息を許して…
+どうか酷い夢だと
+答えて欲しい
+どれだけ叫び
+悶え 苦しめばいい
+どうか酷い夢だと
+教えて欲しい
+最後にもう
+一度だけ笑ってみたい
+```
